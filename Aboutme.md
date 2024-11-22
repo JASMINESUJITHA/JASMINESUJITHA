@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JASMINESUJITHA
 - 👀 I’m interested in designing.
-- 🌱 I’m currently learning UI/UX
+- 🌱 I’m currently doing my UG at DACE.
 - 💞️ I’m looking to collaborate on designing projects
 - 📫 Reach me by jasminesujitha5@gmail.com
 - 😄 Never stop learning because life never stops teaching.
